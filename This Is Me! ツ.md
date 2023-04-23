@@ -1,0 +1,4 @@
+- Hi, I’m @TheFloofyWolf I Love Programming... I'm Currently Studying Programming Because I Do Like It, And I Make Scripts And 3D Model, That's What I Like To Do I'n My Free Time
+- I'm A Furry And This Is My Hobby! I'm So Happy In This Comunity.. Except Sometimes I'm Sad But My Furry Friends Help Me! I Get Headpats Or Boops
+- Some Of My Scripts Will Help I Guess.. I'm Using GitHub To Make Scripts And Test Them Out
+- Bye! See Ya Around ツ
